@@ -1,5 +1,5 @@
 - 🌷 Hi, I’m @cOdeBedient 🌷
-- 🪻 I’m interested in logic, flowers, pickleball, kindness, and paths forward. 🪻
+- 🪻 I’m interested in logic, 💐flowers💐, pickleball, kindness, and paths forward. 🪻
 - 🪷 I’m currently learning JavaScript, CSS, HTML, and evolved teamwork. 🪷
 - 🌻 I’m looking to collaborate on anything! I love to collaborate- if we both find it interesting, it's probably worth doing! 🌻
 - 🌾 How to reach me: adambedient@gmail.com or [linkedIn](https://www.linkedin.com/in/adam-bedient-146995a1/) 🌾
